@@ -1,1 +1,0 @@
-# termoi81k9q
